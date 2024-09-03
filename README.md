@@ -1,0 +1,1 @@
+still on progress if you have anything to advise me you are warmly welcome. I do respect y'all advises. as you can go through ma codes am just a begginer and is my dear wish i'll be full stack someday. love y'all.
